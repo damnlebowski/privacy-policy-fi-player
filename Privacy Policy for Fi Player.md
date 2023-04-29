@@ -1,6 +1,5 @@
 ﻿Privacy Policy for Fi Player![](Aspose.Words.534e4b28-e094-4d34-be9f-703668b97f2b.001.png)
 
-![](Aspose.Words.534e4b28-e094-4d34-be9f-703668b97f2b.002.png)[` `**freeprivacypolicy.com**/live/aa3e355a-87eb-48e6-8fb4-ff9f7e5204aa](https://www.freeprivacypolicy.com/live/aa3e355a-87eb-48e6-8fb4-ff9f7e5204aa)
 
 Privacy Policy![](Aspose.Words.534e4b28-e094-4d34-be9f-703668b97f2b.003.png)
 
