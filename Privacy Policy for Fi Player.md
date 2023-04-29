@@ -39,7 +39,6 @@ While using Our Service, We may ask You to provide Us with certain personally id
 
 Usage Data
 
-Usage Data![](Aspose.Words.534e4b28-e094-4d34-be9f-703668b97f2b.010.png)
 
 Usage Data is collected automatically when using the Service.
 
